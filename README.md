@@ -11,7 +11,7 @@
     for when he died - i've decided to disregard absolutely all of them cause i know he can't do
     anything about it. Like yeah he could haunt me, but whats he gonna do as a weak ol ghost? open my 
     drawers when i've just closed them? Keep the tap running? make weird groaning noises in the night? 
-      <em>oooooh</em>I'm just <em>so</em> scared - i'm just shaking in my litte booties over here.</p>
+      <em>oooooh</em> I'm just <em>so</em> scared - i'm just shaking in my litte booties over here.</p>
     <img src="https://upload.wikimedia.org/wikipedia/en/8/83/Strong_Bad.png"></img>
     <h3>this is an image our the deceased mexican wrestler posing in the void for a reference image</h3>
     <h4>Here are some more good good images of this bad bad guy</h4>
