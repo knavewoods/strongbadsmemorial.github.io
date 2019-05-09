@@ -2,7 +2,6 @@
 <html>
   <head>
     <meta charset="utf-8">
-    <title> Strong Bad's Memorial </title>
   </head>
   <body>
     <h2>Strong Bad = Very dead</h2>
